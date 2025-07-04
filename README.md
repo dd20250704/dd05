@@ -16,6 +16,6 @@
 
 总的来说，选择正规、安全、高清的平台看“日本AV免费”，既省心又放心，还能让你持续享受优质内容，这也是搜索排名靠前的重要原因。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd20250704/dd05 ）</span>
 
 
